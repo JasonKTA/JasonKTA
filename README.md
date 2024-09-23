@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @JasonKTA
+- 👀 I’m interested in furthering my professional career in analysis 
+- 🌱 I’m currently learning Microsoft Excel!
+- 💞️ I’m looking to collaborate on team projects
+- 📫 How to reach me -- email!
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: In love with fitness & education!
